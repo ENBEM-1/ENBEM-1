@@ -5,5 +5,5 @@
 - 📫 You can reach me on 
 - LinkedIn:@emmanuelmee 
 - Twitter:@enbemgh
-- Githuh: @ENBEM-1
+- Github: @ENBEM-1
 
